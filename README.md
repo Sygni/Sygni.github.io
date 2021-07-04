@@ -1,1 +1,1 @@
-# sygni.github.io
+# Sygni.github.io
